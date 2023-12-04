@@ -1,1 +1,1 @@
-
+Ini adalah masa dimana saya melakukan kegiatan magang rangkaian open recruitment Gamaforce. Timku terdiri dari berbagai macam orang dan dari berbagai macam jurusan. Di foto-foto ini menyimpan begitu banyak kenangan indah, sedih, maupun capek. Akan tetapi, hal itu tidak menyurutkan usaha kami untuk terus menerbangkan UAV ini. Carilah tempat untukmu bertumbuh. Sekalipun ada harga yang harus dibayar. Jangan lupa untuk terus menyimpan kenangan tersebut dalam bentuk foto dan video ya😉
